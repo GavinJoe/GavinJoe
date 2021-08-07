@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GavinJoe
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate with no one because idk
+- 📫 How to do this idk
